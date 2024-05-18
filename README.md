@@ -1,1 +1,1 @@
-I am Johnny. Nice to meet you !!!
+I am Johnny who are addicted to learn anything new from technology! 
